@@ -1,2 +1,0 @@
-# sr-cresco
-SR CRESCO - GROW • PROSPER • THRIVE
